@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Overude
+- 👋 Hi, I’m Kristofer aka @Overude
 - I have the same username as my Roblox account!
 <!---
 Overude/Overude is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
